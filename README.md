@@ -1,0 +1,1 @@
+Will become a site for posting information about the Windham Committee for School Choice. This is not a right-wing group, but rather people who recognize that the school is far too small to have adequate staff and we think the school should be closed and the students be tuitioned to another public school.
